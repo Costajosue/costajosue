@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Olá me chamo Josué 
+# 👩🏻‍💻 Olá me Chamo Josué 
 
 **`Estudante de Tecnologia`**
 
